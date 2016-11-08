@@ -4,4 +4,4 @@
 1 cup fresh milk (or evaporated milk)
 1 cup granulated sugar
 1 tsp vanilla extract
-1 tsp instant coffee
+1 tsp green tea extract
